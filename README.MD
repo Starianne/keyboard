@@ -1,2 +1,1 @@
-I will be making a keyboard with hack club's ysws Keeb
-https://keeb.hackclub.com/
+I will be making a keyboard as mine at home does not have all of the keys I need :(
